@@ -1,2 +1,42 @@
 # RickRoll
 Never Gonna Give You Up.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Now enjoy your music.
